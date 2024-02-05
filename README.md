@@ -28,4 +28,3 @@ I'm passionate about learning and sharing knowledge, always looking for new ways
 
 ---
 
-I hope we can connect and collaborate on something amazing together!
